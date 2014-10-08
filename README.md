@@ -1,0 +1,3 @@
+# isbuchnerstilltalkingaboutbitcoin
+
+YES
